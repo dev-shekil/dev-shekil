@@ -1,4 +1,4 @@
-### Hi there 👋, I am Shekil Rahman
+### Hi there 👋, I am Shekil
 #### An young programmmer
 I like to program for my skill improvement .
 
